@@ -7,4 +7,4 @@ root access needed
 
 2.ransomware2(32 bit os)
 
-https://www.facebook.com/Encodedweapon/videos/2034420306609186/
+# https://www.facebook.com/Script1337/
